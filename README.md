@@ -1,0 +1,1 @@
+# HAYATE-ama.github.io
